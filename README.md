@@ -1,2 +1,0 @@
-# HackathonVZ
-Team 6 
